@@ -41,7 +41,7 @@ We prioritize eco-friendly solutions and are committed to reducing the carbon fo
 📧 *Email*: [infonewmatrixbmt@gmail.com](mailto:infonewmatrixbmt@gmail.com)  
 🌐 *Website*: [www.yourcompany.com](https://www.yourcompany.com)  
 📞 *Phone*: +971 (50) 530-9409  
-🔗 *Follow Us*: [LinkedIn](www.linkedin.com/in/abdulrahman-mohammad-216638201) | [Twitter](https://twitter.com/yourcompany)
+🔗 *Follow Us*: [LinkedIn](https://www.linkedin.com/in/abdulrahman-mohammad-216638201)
 
 ---
 
