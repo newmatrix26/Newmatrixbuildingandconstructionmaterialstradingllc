@@ -20,7 +20,7 @@ New Matrix Building & Construction Materials Trading LLC specializes in providin
 ---
 
 ## 🏗️ Our Services
-🔹 *Supply of Construction Materials* – Cement, Steel, Bricks, Wood, and more.  
+🔹 *Supply of Construction Materials* – Plywood (Marine, Commercial) MDF boards (MR, Plain)  
 🔹 *Logistics & Delivery* – Timely delivery of bulk and customized orders.  
 🔹 *Consultation Services* – Expert guidance on the best materials for your projects.  
 🔹 *Sustainable Solutions* – Eco-friendly and energy-efficient building materials.
@@ -39,7 +39,7 @@ We prioritize eco-friendly solutions and are committed to reducing the carbon fo
 ## 🤝 Get in Touch
 📍 *Headquarters*: [Dubai, U.A.E]  
 📧 *Email*: [infonewmatrixbmt@gmail.com](mailto:infonewmatrixbmt@gmail.com)  
-🌐 *Website*: [www.yourcompany.com](https://www.yourcompany.com)  
+🌐 *Website*: (under process)
 📞 *Phone*: +971 (50) 530-9409  
 🔗 *Follow Us*: [LinkedIn](https://www.linkedin.com/in/abdulrahman-mohammad-216638201)
 
